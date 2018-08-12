@@ -1,1 +1,0 @@
-# bordakserg.qithub.io
